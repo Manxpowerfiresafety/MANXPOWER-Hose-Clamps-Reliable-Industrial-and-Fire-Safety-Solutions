@@ -16,7 +16,7 @@ Hose clamps are a vital part of multiple systems, especially in industrial and f
 At MANXPOWER, we focus on delivering top-quality products that exceed customer expectations. Here’s why industries and safety professionals trust us:<br>
 <li><b>Superior Quality: </b>Each hose clamp undergoes strict quality checks to ensure unmatched strength and reliability.</li><br>
 <li><b>Global Standards: </b>Our products meet international safety and manufacturing standards.</li><br>
-<li><b>Innovation-Driven</b>We continuously improve our designs for better performance and easier use.</li>,br>
+<li><b>Innovation-Driven</b>We continuously improve our designs for better performance and easier use.</li><br>
 <li><b>Customer-Centric Approach: </b>MANXPOWER is committed to providing excellent customer support and timely deliveries.</li><br>
 <li><b>Proven Track Record: </b>With years of expertise in industrial and fire safety products, we are a trusted name in the market.</li><br>
 <h3>Final thoughts</h3>
